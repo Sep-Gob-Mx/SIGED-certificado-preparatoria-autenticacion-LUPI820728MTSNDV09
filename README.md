@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LUPI820728MTSNDV09
+LUPI820728MTSNDV09
